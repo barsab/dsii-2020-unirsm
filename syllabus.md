@@ -94,3 +94,5 @@ _Digital Art and Meaning: ..._, Simanowski 2011 :
 
 
 _work in progress_
+
+Lezione due in arrivo oggi alle 15:15 (test)
